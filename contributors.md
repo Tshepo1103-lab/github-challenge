@@ -6,7 +6,7 @@
 Karabo enjoys playing soccer
 Willem - like visiting my grand parents farm
 Kabelo - Loves hiking 🏔️ Mpho - Enjoys playing chess ♟️  
-Bokang - Big fan of sci-fi movies 🎥 Mishalia - Loves Drawing and Painting 🚀  
+Bokang - Big fan of thriller - enjoys listening to music
 Evan - Enjoys playing guitar 🎸 Fiona - Also plays guitar! 🎶  
 Motseki - Favorite food is pizza 🍕 Hlompho - Also loves pizza! 🍕  
 Ian - Speaks three languages 🌍 Jane - Loves astronomy 🔭 
