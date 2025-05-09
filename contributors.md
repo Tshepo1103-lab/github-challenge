@@ -11,4 +11,4 @@ Evan - Enjoys playing guitar 🎸 Fiona - Also plays guitar! 🎶
 Motseki - Favorite food is pizza 🍕 Hlompho - Also loves pizza! 🍕  
 Ian - Speaks three languages 🌍 Jane - Loves astronomy 🔭 
 Lihlumise - Enjoys distance runnig 💻 Craig - Loves traveling ✈️
-Bonolo -I playing piano, not playing amapiano!
+Bonolo -I playing piano, not playing games!
