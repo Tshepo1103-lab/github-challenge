@@ -3,7 +3,7 @@
 # Add your name and a fun fact below!
 
 # If your name is here, modify your existing line instead of adding a new one.
-Karabo enjoys playing soccer
+Karabo - enjoys watching the Premier League and playing RPG games
 Willem - like hiking
 Kabelo - Loves hiking 🏔️ Mpho - Enjoys playing chess ♟️  
 Bokang - Big fan of sci-fi movies 🎥 Mishalia - Loves Drawing and Painting 🚀  
